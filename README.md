@@ -1,1 +1,2 @@
 Michael Girsberger
+girsberm@oregonstate.edu
